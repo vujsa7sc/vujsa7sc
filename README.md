@@ -1,1 +1,1 @@
-![profile cover (1)](https://github.com/user-attachments/assets/83275a4c-5909-4118-b79a-d16640ab9d13)
+![profile cover (2)](https://github.com/user-attachments/assets/7f2ed65c-5e1f-4b16-bd80-457504b2bddb)
